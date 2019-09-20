@@ -2,4 +2,6 @@
 
 - Feitas anotações no PC.
 
-Atualização
+Atualização.
+
+Bem vindo
